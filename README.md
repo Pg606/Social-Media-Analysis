@@ -1,3 +1,3 @@
 # Social-Media-Analysis
 
-![image](https://github.com/pg611/Multivariate-Analysis/assets/150620210/fff1443b-7796-44e4-bd82-aabea52843fc)
+![image](https://www.slideteam.net/media/catalog/product/cache/960x720/s/o/social_media_analysis_ppt_gallery_structure_Slide01.jpg)
